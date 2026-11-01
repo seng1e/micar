@@ -1,8 +1,3 @@
 # micar
 
-
-https://advisor-hispanic-mounting-thought.trycloudflare.com
-
-
-
-https://wales-rocket-frontier-comes.trycloudflare.com/p
+https://episode-name-metallic-drain.trycloudflare.com/android
